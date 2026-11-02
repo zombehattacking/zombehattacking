@@ -1,6 +1,6 @@
 ### if i dont respond to whispers or dont talk to you its nothing personal, im an extremely anxious person and my stupid inferiority complex makes it worse 😢😢 im working on it okay im the most awkward person on planet earth
 ### C+H encouraged ALWAYS !! I love being cuddled even when I have dni in name its just so comfy
-### If I randomly c+h with u its because u had it in name and im taking baby steps to make my anxiety better i guess in a way idk its stupdi hide me if u dont like dat
+### If I randomly c+h with u its because u had it in name and im taking baby steps to defeat..?? my anxiety??? idontknow its stupid jsut hide me if u dont like dat oke
 
 ### [rentry](https://rentry.co/tomtordyaoi) ![](https://64.media.tumblr.com/5bad167ad3f315c0189a7afaf1245f07/851a1ef7d7001340-32/s100x200/d4d98e5605033779e5c0b9ce1cde102dc9b36e4c.gifv) [atabook](https://tetora.atabook.org/) ![](https://64.media.tumblr.com/94bc5aa74a91b5847baf23b1e71b7061/851a1ef7d7001340-78/s100x200/ecdd4b1e122b88a37af12aa32118c8182ea56359.gifv) [strawpage](https://plsgivemegimmickspleasee.straw.page/) ![](https://64.media.tumblr.com/fb2ffc2b51c4a06c3f61f4b61c58ff36/851a1ef7d7001340-01/s100x200/7531ef2c68852110a6b0e36c104064225990017f.gifv)
 
