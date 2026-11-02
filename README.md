@@ -1,4 +1,4 @@
-### if i dont respond to whispers or dont talk to you its nothing personal, im an extremely anxious person and i get really get nervous and my stupid inferiority complex makes it worse 😢😢 im working on it okay im the most awkward person on planet earth
+### if i dont respond to whispers or dont talk to you its nothing personal, im an extremely anxious person and i get really nervous and my stupid inferiority complex makes it worse 😢😢 im working on it okay im the most awkward person on planet earth
 ### C+H encouraged ALWAYS !! I love being cuddled even when I have dni in name its just so comfy
 ### If I randomly c+h with u its because u had it in name and im taking baby steps to make my anxiety better i guess in a way idk its stupdi hide me if u dont like dat
 
